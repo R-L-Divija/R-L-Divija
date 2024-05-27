@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @R-L-Divija
 - 👀 I’m interested in Future AI tech
-- 📫 Reach me :divijarengaraj@gamil.com
+- 📫 Reach me :divijarengaraj@gmail.com
 - 😄 Pronouns:she/her
 
 <!---
